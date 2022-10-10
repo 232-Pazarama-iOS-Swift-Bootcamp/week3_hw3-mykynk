@@ -1,3 +1,6 @@
+# Video Linki: https://drive.google.com/file/d/1SMZ3tRDOt1xnDIiex0fTDNK0KgTJ1dEG/view?usp=sharing
+
+
 # Pazarama iOS Bootcamp - Hafta 3 - Ödev
 
 
